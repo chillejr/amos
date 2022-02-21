@@ -1,0 +1,2 @@
+# amos
+lets hack someone 
